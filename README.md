@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @tedo135
+- 👀 I’m interested in searching stuff in google
+- 🌱 I’m currently learning hacking NASA using HTML
+- 💞️ I’m looking to collaborate on Particle Masses research;
+- 📫 just reach me
